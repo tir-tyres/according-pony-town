@@ -1,5 +1,3 @@
-## idk how this works tbhhHELPMEHOWDO I DELETE THIS
-
-# a thing
-what if i do this
-* and this
+## pony town
+text text
+𝗳𝗮𝘁 𝘁𝗲𝘅𝘁 yes
