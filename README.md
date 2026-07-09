@@ -6,6 +6,6 @@ few things before the points i made: i am 𝗺𝘂𝗹𝘁𝗶𝘁𝗮𝘀𝗸�
 2. 𝗜𝗺𝗽𝗼𝗿𝘁𝗮𝗻𝘁--> english is not my first/native language so i will make mistakes!! ( established my attidue towards grammar ) , also i am a minor - if you need then feel free to ask what my age is
 3. 𝗜𝗻𝘁𝘀 𝗰+𝗵'𝘀 𝗮𝗻𝗱 𝗮𝗹𝗹 𝘁𝗵𝗮𝘁--> feel free ofc!! 𝘀𝘁𝗿𝗮𝗻𝗴𝗲𝗿𝘀: -i dont mind ints but if i dont respond then please respect that!! -c+h is always okay but if im with friends ask me first ( i don't want to make anyone uncomfy ) 𝗳𝗿𝗶𝗲𝗻𝗱𝘀: -always -always!!1 ( if anything changes ill warn first )
   
-idk what else too add for now  
-main pony jumpscare
+idk what else to add for now  
+main pony jumpscare-->
 <img width="100" height="78" alt="ew" src="https://github.com/user-attachments/assets/d4d66cf7-bff6-4d44-b2ce-ca0e88ddd2a4" />
