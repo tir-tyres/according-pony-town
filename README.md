@@ -8,4 +8,4 @@ few things before the points i made: i am 𝗺𝘂𝗹𝘁𝗶𝘁𝗮𝘀𝗸�
   
 idk what else to add for now  
 main pony jumpscare-->
-<img width="100" height="78" alt="ew" src="https://github.com/user-attachments/assets/d4d66cf7-bff6-4d44-b2ce-ca0e88ddd2a4" />
+<img width="120" height="78" alt="ew" src="https://github.com/user-attachments/assets/d4d66cf7-bff6-4d44-b2ce-ca0e88ddd2a4" />
